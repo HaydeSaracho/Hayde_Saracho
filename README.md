@@ -43,7 +43,7 @@ Me interesa especialmente la **intersección entre biología y tecnología**, y 
 ## 🔗 Links
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/haydesaracho/)
-- 📫 Contacto: haydesaracho@gmail.com
+- 📫 haydesaracho@gmail.com
 
 ---
 
